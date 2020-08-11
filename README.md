@@ -1,4 +1,4 @@
-# FRIDAY-USERBOT
+# EDDITH-USERBOT
 
 <p align="center">
 <img src="https://telegra.ph/file/fb10fea3d152e1524ef93.png" alt="E.D.I.T.H. USERBOT">
@@ -11,7 +11,7 @@
 Best User Bot To Manage Your Telegram Account 
 ## Most PowerFul And Better And Secure
 
-## © By Team #©©TᴇᴀᴍAᴛᴜʟ™
+## © By Team #©TᴇᴀᴍAᴛᴜʟ™
 
 ### For any query or want to know how it works join Group And Channel 
 
