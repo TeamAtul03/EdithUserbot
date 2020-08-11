@@ -1,4 +1,4 @@
-# EDDITH-USERBOT
+# EDITH-USERBOT
 
 <p align="center">
 <img src="https://telegra.ph/file/fb10fea3d152e1524ef93.png" alt="E.D.I.T.H. USERBOT">
